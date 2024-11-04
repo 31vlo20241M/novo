@@ -10,3 +10,5 @@ Você pode entrar em contato comigo em:
 viviane.luggeri.oliveira#escola.pr.gov.br
 
 @alurastartestudante
+
+![](https://media.tenor.com/AJgLG0lHQbgAAAAM/taylor-swift-cheers.gif)
